@@ -7,3 +7,7 @@ British magizoologist Scamander is on a stop-over in New York City on his way to
 * He has a special gift with wild animals
 * Much less so with fellow human beings
 * He is somewhat shy but charming
+
+As Newt Scamander puts it:
+
+>My philosophy is that worrying means you suffer twice.
