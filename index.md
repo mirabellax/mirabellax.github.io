@@ -11,3 +11,5 @@ British magizoologist Scamander is on a stop-over in New York City on his way to
 As Newt Scamander puts it:
 
 >My philosophy is that worrying means you suffer twice.
+
+<img src="https://www.imdb.com/title/tt3183660/mediaviewer/rm1930232064"/>
