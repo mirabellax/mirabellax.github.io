@@ -1,1 +1,1 @@
-A website for my favourite character is currently being built here!
+# This is a website in honor of Newt Scamander!
